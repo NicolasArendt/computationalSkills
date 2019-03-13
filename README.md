@@ -7,4 +7,4 @@ gfgffgg
 
 
 ps:
-write different things
+right´s are important
